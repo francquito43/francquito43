@@ -1,6 +1,6 @@
 <div align="center">
 
- [**FOLLOW!!**](https://github.com/emmmzi)      4️⃣3️⃣      [**CHECK ME!!**](https://emmziikiwii.atabook.org/)
+ [**FOLLOW!!**](https://github.com/emmmzi)      4️⃣3️⃣      [**CHECK ME!!**](https://goatlist.straw.page)
  
  
  ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
