@@ -5,8 +5,9 @@
  
  ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
 
+<img width="245" height="256" alt="image" src="https://github.com/user-attachments/assets/b3ed98b4-4cd6-4d36-8b31-19d09dbe66ee" />
 
-<img width="1173" height="1110" alt="image" src="https://github.com/user-attachments/assets/d3b0ed10-4cc2-41ff-9057-a12d9f10cac9" />
+@ safe serv #1 : -13 dni !!! c+h PLSPLS!
 
 <!--
 **francquito43/francquito43** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
