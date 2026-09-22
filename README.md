@@ -9,7 +9,7 @@
 
 <img width="245" height="256" alt="image" src="https://github.com/user-attachments/assets/b3ed98b4-4cd6-4d36-8b31-19d09dbe66ee" />
 
-@ safe serv #1 : -13 dni !!! c+h PLSPLS!
+@ safe serv #1 + #2 : ALWAYS INT !!! c+h PLSPLS!
 <br/><sub>_" I'm not famous, I'm a racer ! "_<br/>
 <!--
 **francquito43/francquito43** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
