@@ -28,7 +28,7 @@ Franco Colapinto my beloved , George Russell the goat , Liam Lawson the goodboy
 
  <details>
 <summary>fandoms!</summary>
-F1 · PonyTown · Arcane · K-pop Demon Hunters · Murder Drones · Brawl Stars · Cookie Run Kingdom · Dandy's World · Sonic · D4DJ · Descendants · South Park · Hellaverse · Roblox
+F1 · Ramparts of ice · Arcane · K-pop Demon Hunters · Murder Drones · Brawl Stars · Cookie Run Kingdom · Dandy's World · Henry Danger · forsaken · Descendants · South Park · HH/HB · Animal hospital
 </details>
 
 <br>
