@@ -5,8 +5,6 @@
 
 <div align="center">
 
-[ rentry ](YOUR-RENTRY-LINK-HERE)
-
 </div>
 
 <br/><sub>_" yoo.. this github is still a wip ok?  ! "_<br/>
