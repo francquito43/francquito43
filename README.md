@@ -1,5 +1,6 @@
 <div align="center">
-
+ [**FOLLOW!!**](https://github.com/emmmzi)      4️⃣3️⃣      [**CHECK ME!!**](https://goatlist.straw.page)
+ 
 
 <img width="245" height="256" alt="image" src="https://github.com/user-attachments/assets/b3ed98b4-4cd6-4d36-8b31-19d09dbe66ee" />
 
